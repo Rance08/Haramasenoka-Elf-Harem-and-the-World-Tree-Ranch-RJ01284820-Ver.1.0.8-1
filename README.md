@@ -1,1 +1,0 @@
-# Haramasenoka-Elf-Harem-and-the-World-Tree-Ranch-RJ01284820-Ver.1.0.8
